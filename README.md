@@ -31,8 +31,8 @@
 ---
 
 ### 📫 Reach Me
-- LinkedIn: [Yassine El Kssir](https://linkedin.com/in/yassine-el-kssir)
-- Email: **yassine.elkssir@gmail.com**
+- LinkedIn: [Yassine El Kssir](www.linkedin.com/in/yassine-el-kssir-59b005389)
+- Email: **yassinelkssir@gmail.com**
 
 ---
 
